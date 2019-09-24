@@ -1,0 +1,3 @@
+The reading did a lot to clear up the distinction between AR and VR and its massive usability in society. A problem that still face in AR is the wearability of the equipment used to access the art. However it’s likeliness to adopt a more aesthetic form adds to the vast potential of AR and VR. 
+
+The artworks that have already been made in AR is impressive and have real-world applications that can extend into the future. With a public health background, I am interested in the potential of VR to alleviating personal illnesses. The divide between VR and AR is crucial. AR allows the user to have interactions with the environment while VR replaces the experience of an environment entirely.
