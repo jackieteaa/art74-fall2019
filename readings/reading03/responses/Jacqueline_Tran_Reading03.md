@@ -1,0 +1,3 @@
+The authors of the article make a good summary between the different intentions of an infographic designed for a broader audience versus a brand-specific one, for a more narrow and niche audience. The comparisons through charts give clear examples communicating the intention of each infographic.
+
+Reading the article helped me make a clear distinction between understanding the purpose of different types of infographic and the steps I would need to take if I were to make an infographic myself. Identifying clear objectives is the best way to start. Both brand-centric and editorial content have their limitations, pros, and cons. 
